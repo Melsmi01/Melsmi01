@@ -1,0 +1,5 @@
+- 😶‍🌫️ Hi, I’m @Melsmi01
+- 📚 I’m interested in learning as much as I can.
+- 👩🏾‍💻 I’m currently learning backend and frontend coding.
+- 💻 I’m looking to collaborate on creative projects.
+- 📫 How to reach me ... mel.smith01@yahoo.com
